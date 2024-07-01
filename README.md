@@ -1,7 +1,7 @@
 <p align="center">
 <b>LOTUS</b> (<a href="https://pronouns.cc/@gweniiezy">+</a>) SHE/THEY/IT 22 ESFP 
 <p align="center">
-<img src="[https://media.discordapp.net/attachments/1238154361012490270/1248607529903194152/image.png?ex=66659961&is=666447e1&hm=a66abc2e0d1644e8680de72783f00a8e9b0593498f4b656fe8f7b37e000dcc8d&=&format=webp&quality=lossless&width=539&height=350](https://64.media.tumblr.com/6f55c11d972f437971d2e76899a8de61/3198364964952796-64/s100x200/d7f29b682bd18111db9d2f52c67ec6d203aac4d8.pnj)">
+<img src="https://cdn.discordapp.com/attachments/1257420786042536098/1257421386893234206/tumblr_4228641344bd3ba7598043f97ec437bc_d83adbde_540.webp?ex=6684586c&is=668306ec&hm=4b52d0367ef71364ea2876c707db79a7dcfd0e33f8cab5e1f987d986ff3af2ce&">
 <br><br> i like <b>dungeons meshi,</b> genshin, </b>regretevator, homestuck,</b>
 <br><b>honkai star rail, smile for me, welcome home, sk8 to infinity</b>
 <br>puppycat, my hero academia, the apothecary diaries <a href="https://rentry.co/-katsumii">+ more</a>
